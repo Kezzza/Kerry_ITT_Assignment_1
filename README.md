@@ -1,4 +1,7 @@
-# lmao u wild whar is  u  doing szzzz
+# Assignment 1
 
-peepee my fucking poopoo dude this shit is McDifficult
-ya yeet test
+S3839262
+Kerry Lam
+
+https://s3839262.github.io/s3839262/index.html
+https://github.com/s3839262/s3839262
